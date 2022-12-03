@@ -64,14 +64,20 @@ Nun haben wir bereits einen guten Einblick in das bekommen, was einen nach einer
 
 ### Nach dem Essen wird Sport gemacht
 
-![Auf dem Weg zum Mittagessen. Foto von: Lucia Bohner Rubiolo](img-20221202-wa0002.jpg)
+![Auf dem Weg zum Mittagessen. Foto von: Lucía Bohner Rubiolo](img-20221202-wa0002.jpg)
 
 Ungefähr um 12 Uhr begibt sich unsere Gruppe in ein anderes Gebäude, in dem schon das Mittagessen auf uns wartet. Es gibt Salat, Pasta und ein Dessert. Das Znüni und Mittagessen wurden von einem Armeekoch zubereitet und wir können sagen: Wenn das Essen der Rekrutenschule genauso gut schmeckt wie an diesem Tag, kann sich auf jeden Fall keiner darüber beklagen.
 
-![Der Marktplatz bestehend aus einer Materialausstellung und informativen Postern. Foto von: Lucia Bohner Rubiolo](bild2.png)
+![Der Marktplatz bestehend aus einer Materialausstellung und informativen Postern. Foto von: Lucía Bohner Rubiolo](bild2.png)
 
 Gestärkt gehen wir nun zurück in einen Raum, wo schon ein «Marktplatz» vorbereitet ist. Er besteht aus einer Materialausstellung und informativen Postern zu den Einheiten der Armee wie auch den Anforderungsprofilen der Funktionen. An einem der Stände können wir sogar verschiedene militärische Ausrüstungsgegenstände anprobieren. Zum Schluss dürfen wir den Sporttest machen, der bestimmt, für welche Funktion jemand zugelassen wird. Zu diesem Test gehören der Standweitsprung, Medizinballstoss, Einbeinstand, Rumpfkrafttest und progressive Ausdauerlauf. Dadurch bekommen wir eine Kostprobe davon, welche körperlichen Anstrengungen der Militärdienst mit sich bringt, denn bei einem Grossteil der Disziplinen werden wir nur als knapp genügend eingeteilt. Falls wir uns dazu entscheiden, ins Militär zu gehen, werden wir wohl keine Militärpolizistinnen oder Grenadiere. Das sind nämlich diejenigen Funktionen, welche die höchsten Leistungen erfordern.
 
-![Simona beim Medizinballstoss (Foto links, von Lucia Bohner Rubiolo) und Lucia beim Rumpfkrafttest (Foto rechts, von Simona Tvareková)](whatsapp-bild-2022-12-02-um-16.09.13.jpg)
+![Simona beim Medizinballstoss (Foto links, von Lucía Bohner Rubiolo) und Lucía beim Rumpfkrafttest (Foto rechts, von Simona Tvareková)](whatsapp-bild-2022-12-02-um-16.09.13.jpg)
 
 Im Grossen und Ganzen war der heutige Tag ein Erfolg. Wir haben viel über das Militärleben einer Frau gelernt, haben einen Einblick in die verschiedenen Gattungen der Armee bekommen und haben erfahren, wie der Rekrutierungsprozess abläuft. Wenn wir uns für die Rekrutierung anmelden wollen, haben wir alle Informationen, die wir benötigen. Wir haben sogar das Anmeldeformular, welches uns schon zu Beginn des Orientierungstages gegeben wurde. Somit sind wir bestens vorbereitet. Ausserdem könnten wir uns – was vorher nicht der Fall war – vorstellen, in die Armee zu gehen. Der Orientierungstag hat somit seinen Zweck erfüllt.
+
+
+
+<hr>
+
+Autorinnen: Simona Tvareková und Lucía Bohner Rubiolo
