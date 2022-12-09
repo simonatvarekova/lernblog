@@ -3,6 +3,7 @@ title = "Sollten gleiche Rechte auch gleiche Pflichten bedeuten?"
 date = "2022-12-02"
 draft = false
 pinned = false
+tags = ["Deutsch", "Reportage"]
 image = "bild1.jpg"
 +++
 {{<lead>}}
