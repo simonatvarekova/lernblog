@@ -42,10 +42,6 @@ Wir haben festgestellt, dass die Motive dafür, den Militärdienst zu leisten, s
 
 Damit es nicht zu Fällen von Überbelastung und gar Abbruch des Dienstes kommt, müssen alle Rekruten einen Sporttest absolvieren. Je nachdem, welche Punktzahl sie dabei erreichen, werden sie für gewisse Funktionen bei der Armee zugelassen. Die Bewertung funktioniert für alle gleich, auch zwischen Frauen und Männern wird nicht unterschieden, denn am Ende müssen alle dieselbe Leistung erbringen. Alle müssen die gleiche Ausrüstung tragen und dieselben Aufgaben erfüllen.
 
-> «Wir wollen Gleichberechtigung beim Job, Lohn, Kaderstellen, Steuern, die gleichen Rechte haben.»
->
-> \- Oberleutnant Fabienne Walser
-
 {{<box title="Frauenanteil im Schweizer Militär">}}
 Heutzutage haben Frauen in der Schweiz Zugang zu allen militärischen Funktionen. Anders als für Männer ist es für sie nicht Pflicht, einen Militär- oder Zivildienst zu leisten. Die Einführung einer solchen Pflicht für alle Schweizer*innen steht nicht selten zur Debatte. Ebenfalls wird diskutiert, ob der Orientierungstag auch für Frauen und nicht nur für Männer obligatorisch sein sollte. An einem Orientierungstag haben die zukünftigen Rekruten die Möglichkeit, sich über die Rekrutierung, den Zivilschutz, den Militär-, Zivil- und Rotkreuzdienst zu informieren.  
 
@@ -55,9 +51,11 @@ Zurzeit beträgt der Frauenanteil knapp 1%, was im Vergleich zu vergangenen Jahr
 
 {{</box>}}
 
-
-
 ### Zwischen Freiwilligkeit und Obligation
+
+> «Wir wollen Gleichberechtigung beim Job, Lohn, Kaderstellen, Steuern, die gleichen Rechte haben.»
+>
+> \- Oberleutnant Fabienne Walser
 
 Nun haben wir bereits einen guten Einblick in das bekommen, was einen nach einer Anmeldung für die Rekrutierung erwarten könnte. Uns wurden der Sporttest, das Auswahlverfahren, die Rekrutenschule und jegliche Wiederholungskurse vorgestellt. Wie der Rekrutierungsprozess für die Frauen genau funktioniert, erklärt uns Oberst i Gst (Oberst im Generalstab) Martin Gafner, Kommandant des Rekrutierungszentrums Sumiswald (BE). Dieser Prozess ist für Frauen und Männer unterschiedlich. Wenn Männer sich für die Rekrutierung angemeldet haben, sind sie schon dazu verpflichtet, den Dienst zu leisten. Frauen hingegen verpflichten sich erst, nachdem sie an der Aushebung gewesen sind (Einteilung eines zukünftigen Rekruten in eine Funktion) und den Vertrag unterschrieben haben. Der Rekrutierungsprozess ist unterschiedlich, weil Frauen sich freiwillig dafür entscheiden und Männer entweder den Militär- oder Zivildienst leisten und sonst Ersatzzahlungen entrichten müssen. Ebenfalls ist die Teilnahme an einem Orientierungstag für volljährige Männer obligatorisch, während sie für Frauen freiwillig ist. Fabienne Walser würde es begrüssen, wenn wenigstens der Orientierungstag für Männer und Frauen obligatorisch wäre. «Viele nehmen diesen Orientierungstag gar nicht wahr und werfen den Zettel mit der Einladung direkt ins Altpapier», sagt sie. Sie sei auch nicht anders gewesen. Mit 18 habe sie den Brief aufgemacht und sich gedacht, wenn sie nicht aufgrund ihres Vaters – er ist Berufsmilitär – so nahe mit dem Militär aufgewachsen wäre, hätte sie nur den Titel gelesen und den Brief weggeworfen. Man höre auch viele Schauermärchen, weil jeder erzähle, dass seine Rekrutenschule die Schlimmste gewesen sei. Dabei werde immer noch etwas zu der Geschichte dazu gedichtet. Ihrer Meinung nach sei es am besten, wenn man die Chance wahrnehme und sich ein eigenes Bild mache. Ausserdem wäre es korrekt, wenn es für alle eine Wehrpflicht gäbe. Sie erklärt: «Eine Frau kann auch einen Beitrag leisten und wenn nicht, muss sie auch nicht die anderen Ansprüche von Gerechtigkeit verlangen. Es ist wie eine Waage. Ich verlange etwas und gebe etwas zurück.» Sie fügt an, Frauen wollen beim Job, Lohn, Kaderstellen und Steuern Gleichberechtigung. Sie sollten auch bei der Militärpflicht gleichberechtigt sein und damit ihrem Land etwas zurückgeben.
 
