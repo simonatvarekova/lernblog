@@ -8,7 +8,8 @@ image = "bild1.jpg"
 +++
 {{<lead>}}
 
-*Wer ins Militär geht, kann sich auf eine herausfordernde Zeit gefasst machen. Dabei erwartet Männer und Frauen dasselbe mit dem Unterschied, dass Frauen den Dienst freiwillig machen. Wir führen ein Gespräch zum Thema Militärpflicht mit Oberleutnant Fabienne Walser und nehmen an einem Orientierungstag exklusiv für Frauen teil, der uns den Militärdienst schmackhaft macht.*\
+*Wer ins Militär geht, kann sich auf eine herausfordernde Zeit gefasst machen. Dabei erwartet Männer und Frauen dasselbe mit dem Unterschied, dass Frauen den Dienst freiwillig machen. Wir führen ein Gespräch zum Thema Militärpflicht mit Oberleutnant Fabienne Walser und nehmen an einem Orientierungstag exklusiv für Frauen teil, der uns den Militärdienst schmackhaft macht.*
+
 *Eine Reportage von Lucía Bohner Rubiolo und Simona Tvareková*
 {{</lead>}}
 
