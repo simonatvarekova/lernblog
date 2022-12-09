@@ -42,6 +42,10 @@ Wir haben festgestellt, dass die Motive dafür, den Militärdienst zu leisten, s
 
 Damit es nicht zu Fällen von Überbelastung und gar Abbruch des Dienstes kommt, müssen alle Rekruten einen Sporttest absolvieren. Je nachdem, welche Punktzahl sie dabei erreichen, werden sie für gewisse Funktionen bei der Armee zugelassen. Die Bewertung funktioniert für alle gleich, auch zwischen Frauen und Männern wird nicht unterschieden, denn am Ende müssen alle dieselbe Leistung erbringen. Alle müssen die gleiche Ausrüstung tragen und dieselben Aufgaben erfüllen.
 
+> «Wir wollen Gleichberechtigung beim Job, Lohn, Kaderstellen, Steuern, die gleichen Rechte haben.»
+>
+> \- Oberleutnant Fabienne Walser
+
 {{<box title="Frauenanteil im Schweizer Militär">}}
 Heutzutage haben Frauen in der Schweiz Zugang zu allen militärischen Funktionen. Anders als für Männer ist es für sie nicht Pflicht, einen Militär- oder Zivildienst zu leisten. Die Einführung einer solchen Pflicht für alle Schweizer*innen steht nicht selten zur Debatte. Ebenfalls wird diskutiert, ob der Orientierungstag auch für Frauen und nicht nur für Männer obligatorisch sein sollte. An einem Orientierungstag haben die zukünftigen Rekruten die Möglichkeit, sich über die Rekrutierung, den Zivilschutz, den Militär-, Zivil- und Rotkreuzdienst zu informieren.  
 
@@ -51,9 +55,7 @@ Zurzeit beträgt der Frauenanteil knapp 1%, was im Vergleich zu vergangenen Jahr
 
 {{</box>}}
 
-> «Wir wollen Gleichberechtigung beim Job, Lohn, Kaderstellen, Steuern, die gleichen Rechte haben.»
->
-> \- Oberleutnant Fabienne Walser
+
 
 ### Zwischen Freiwilligkeit und Obligation
 
